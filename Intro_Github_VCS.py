@@ -155,8 +155,8 @@ I play baseball
 cars 2 was a disaster
 Better call saul is top 3 series of all time
 i have renegade raider
-kanye west is consistantly in my playlist
-
+kanye west is consistently in my playlist
+Texas roadhouse makes some pretty good rolls
 ------------------Student 16------------------
 
 
